@@ -23,7 +23,7 @@
 
 点击访问：<a href="https://hj-1298.pages.dev/">51视频编辑压缩</a>
 
-点击访问：<a href="(https://pc1-01.pages.dev/)">51品茶</a>
+点击访问：<a href="https://pc1-01.pages.dev/">51品茶</a>
 
 点击访问：<a href="https://dy9-08.pages.dev/">抖音裸舞</a>
 
